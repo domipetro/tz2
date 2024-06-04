@@ -1,1 +1,1 @@
-# tz2
+Petró Dominik
